@@ -1,2 +1,0 @@
-# Hanankey
-Technology Academy 
